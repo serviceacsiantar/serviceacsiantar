@@ -61,6 +61,8 @@ Butuh layanan cuci AC cepat atau konsultasi kerusakan? Jangan ragu untuk menghub
     *   TikTok: https://tiktok.com/@siantarac 
     *   Instagram: https://Instagram.com/serviceacsiantar
     *   Pinterest: https://pinterest.com/serviceacsiantar
-
+    *   Linkedin: https://linkedin.com/in/serviceacsiantar
+    *   Google Maps: https://maps.app.goo.gl/mjDmw2bcbcjRV7Nk6
+    
 ---
 *Tags: Service AC Siantar, Cuci AC Pematangsiantar, Tukang AC Siantar, Bongkar Pasang AC Siantar, Service AC Murah Pematangsiantar, Siantar AC.*
